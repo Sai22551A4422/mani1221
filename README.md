@@ -1,2 +1,2 @@
 this about cricket players ---------------------------
-i always upadted 
+i always updated
